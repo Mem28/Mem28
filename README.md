@@ -2,7 +2,7 @@
 🌱 I’m currently learning web-programming in Edunova
 📫 How to reach me : jisse.merlin@gmail.com
 
+![image](https://github.com/Mem28/Mem28/assets/152483407/5b3bb07e-fa67-4c59-85b3-4f1a5789df6b)
 
-https://repository-images.githubusercontent.com/462900780/0a10af70-6cbf-46df-9071-0ff586a3b1d6
 
 
