@@ -3,6 +3,6 @@
 📫 How to reach me : jisse.merlin@gmail.com
 
 
-![image](https://github.com/Mem28/Mem28/assets/152483407/80865e4b-3322-4d40-8fe7-6bd85c321740)
+https://repository-images.githubusercontent.com/462900780/0a10af70-6cbf-46df-9071-0ff586a3b1d6
 
 
